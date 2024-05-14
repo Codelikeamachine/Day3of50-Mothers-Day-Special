@@ -7,7 +7,7 @@ Live Demo - https://codelikeamachine.github.io/Day3of50-Mothers-Day-Special/
 
 # Join me
 
-GitHub-https://github.com/Codelikeamachine
+Linkedin - http://www.linkedin.com/in/armaansaraswat
 
 GitHub: https://github.com/Codelikeamachine
 
